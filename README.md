@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **madaryogesh9@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1DoMkCXvGHyOH8ZVYwToGykBcYVAntQyX/view?usp=sharing](https://drive.google.com/file/d/1DoMkCXvGHyOH8ZVYwToGykBcYVAntQyX/view?usp=sharing)
+- 📄 Know about my experiences [bit.ly/yogesh_madar-resume](bit.ly/yogesh_madar-resume)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
